@@ -1,3 +1,0 @@
-# ProjetMO
-
-baptiste travail !!!!
